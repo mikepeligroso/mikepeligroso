@@ -1,2 +1,1 @@
-### TOKEYTOKE@TOKEYTOKE.CF
-This profile is 18+ ONLY!
+### ★ 𝓜𝓲𝓴𝓮 𝓟𝓮𝓵𝓲𝓰𝓻𝓸𝓼𝓸
